@@ -6,6 +6,5 @@ TOOL | HUB |
 AVAIBLE SOON○○○ ON DISCROD LINK :
 DISPONIBLE  BIENTÔT◇◇◇  REJOINT LE DISCORD LINK :
 
-https://drive.google.com/drive/folders/1rxIPCGwFn_9MPDbWxCZF4vDiP_AonHvK
-
+https://drive.google.com/file/d/1kyJGn5v1BI5_-mO2E67tbMuoSpLUpwIn/view?usp=drivesdk
 ♡♡♡ SkibzFr Services ♡♡♡
