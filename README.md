@@ -1,7 +1,7 @@
 
 
-# SkibzFr-Tool-AFK
-TOOL | AFK
+# SkibzFr Services 
+TOOL | HUB | 
 
 AVAIBLE SOON○○○ ON DISCROD LINK :
 DISPONIBLE  BIENTÔT◇◇◇  REJOINT LE DISCORD LINK :
